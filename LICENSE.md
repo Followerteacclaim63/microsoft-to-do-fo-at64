@@ -1,4 +1,4 @@
-#  
+#  Enhance Microsoft To Do for macOS with professional Microsoft To Do for macOS Addon | quick search + database templates, the #1 addon. Includes quick search and database templates
 
 
 
